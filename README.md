@@ -34,6 +34,7 @@ I still think that it was a great idea because of some technical organiation fea
 1. "Drunkness limit": we could limit the abuse of alchool because people were discouraged in buying a lot of extra drinks
 2. Drink control: we could estimate the quantity of drinks that we are going to produce
 3. Extra profits
-4. Cheaper event ticket pricing: we could lower the ticket price to attract more people but still stay within the budget by selling drinks' chips  
+4. Cheaper event ticket pricing: we could lower the ticket price to attract more people but still stay within the budget by selling drinks' chips
+   
 It has some downsides but I still believe it was a great idea;
 
