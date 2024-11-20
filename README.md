@@ -3,6 +3,8 @@
 This is going to be my board diary as an event organizer  
 It will feature a lot of "takehomes" by the end of the party  
 
+## 📖 The journey ✈️
+
 The journey stars on sept. 24 2024 when my group of friends and I decided to host a night party on the 12/31 to celebrate the new year's eve togheter;  
 As a result of it we decided to make it big, very big : so we started planning something like a 200ish people party.  
 To be completely fair, we've alredy hosted few other parties during the last 2-3 years but the most recent one was on aug. 15 2024 with around 35 participants. What we can clearly see is that the number of people to that party was around 1/6 of what we planned for the next one.
@@ -37,4 +39,15 @@ I still think that it was a great idea because of some technical organiation fea
 4. Cheaper event ticket pricing: we could lower the ticket price to attract more people but still stay within the budget by selling drinks' chips
    
 It has some downsides but I still believe it was a great idea;
+
+Fast forward again to tuesday nov. 19 2024
+The release day has finally come, and let me say it was overwhelmingly good, but - as a software developer - I like to talk about pure data: 31% of the partecipants target has been reached in the first 24 hours.  
+31% on the first day is well over a quarter of target 42 day prior to the event date is just crazy;  
+just shy of 30% of the budget target have been reached;    
+male/female% target was just above the target;  
+
+I want to take this part of the blog to thank everyone who helped us spreading our Instagram content over their profiles, - data again - around 30 people reposted our Instagram story and this was a great audience boost:  
+at this point of the story we had just 100 followers on the event account but our stories reached over 4500 people, that's crazy too.
+
+## 💡 Takehomes 🧠
 
