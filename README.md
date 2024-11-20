@@ -16,7 +16,7 @@ I want to state here that we clearly let everyone know our plan and our vision t
 1. The event MUST be 18+ only;
 2. The event was going to be either "free drink" or "free drink*" - I'm going to explain it later;
 3. Partecipants' safety was going to be our priority: we alredy tought about "renting" 2 to 4 bodyguard for the event;
-4. Profits weren't our goal, we just wanted to be THE party of that day;
+4. Profits weren't our goal, we just wanted to be THE party of that day;  
 To my surprise, even having explained our plan no one was going to let us host the party in their properties.
 
 We where then back to starting point, we just had to wait for Mauro's reply.
