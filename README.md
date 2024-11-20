@@ -22,7 +22,7 @@ To my surprise, even having explained our plan no one was going to let us host t
 
 We where then back to starting point, we just had to wait for Mauro's reply.
 
-Fast forward to monday nov. 4 2024  
+Fast forward to monday nov. 4 2024   
 After some unreplied text messages we finally heard Mauro's back through a phone call: he was going to let us rent his property for our party;
 I'm not going to bother the reader with unnecessary details but I want just to say that we were very hyped for that news.
 
@@ -41,7 +41,7 @@ I still think that it was a great idea because of some technical organiation fea
    
 It has some downsides but I still believe it was a great idea;
 
-Fast forward again to tuesday nov. 19 2024
+Fast forward again to tuesday nov. 19 2024  
 The release day has finally come, and let me say it was overwhelmingly good, but - as a software developer - I like to talk about pure data: 31% of the partecipants target has been reached in the first 24 hours.  
 31% on the first day is well over a quarter of target 42 day prior to the event date is just crazy;  
 just shy of 30% of the budget target have been reached;    
