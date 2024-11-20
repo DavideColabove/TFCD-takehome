@@ -52,3 +52,8 @@ at this point of the story we had just 100 followers on the event account but ou
 
 ## 💡 Takehomes 🧠
 
+1. Being immeasurably organised is the key: having everything - I mean EVERYTHING - planned is the way to go. I can see why many people don't do this often, it requires a lot of effort and planification skills but it will help during the process for sure and gives everyone a deadline for everything needed: it gives motivation and that sense of responability;
+
+2. Love what you're doing: it has always been my life mantra but this was the right occasion to prove it right; you don't necessarily need to be good at what you're doing - I had no accademical knowledge on this field - but consistency and passion always pays off. Being consistent I would say is a foundamental part of any passion. Coming up everyday with new ideas, being proactive and use your free time to develop the project are parts of the passion too. Might sounds crazy but periodically refreshing the partecipants spredsheet is what kept me full focused over it - maybe it was just because everything was working fine -.
+
+3. 
