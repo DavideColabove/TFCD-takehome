@@ -1,4 +1,4 @@
-# 🥂 Event's organization: what i learnt ✨
+# 🥂 Events' organization: what i learnt ✨
 
 This is going to be my board diary as an event organizer  
 It will feature a lot of "takehomes" by the end of the party  
